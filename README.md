@@ -1,4 +1,4 @@
-# I AM BLOCKCHAIN DEVELOPER
+# I AM DEVELOPER
 
 - 👋 Hi, I’m @onlyhi00
 - 👀 I’m interested in BLOCKCHAIN DEVELOPMENT
